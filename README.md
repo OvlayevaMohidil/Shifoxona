@@ -1,1 +1,6 @@
 ![image](https://github.com/OvlayevaMohidil/Shifoxona/assets/159124258/3856aded-b490-4e59-bc56-8ea649b246dc)
+![image](https://github.com/OvlayevaMohidil/Shifoxona/assets/159124258/f6f71569-0ae3-4312-b9cb-a9f7efc772b6)
+![image](https://github.com/OvlayevaMohidil/Shifoxona/assets/159124258/d9a7a805-6a3a-4321-b77e-d67478bc058d)
+![image](https://github.com/OvlayevaMohidil/Shifoxona/assets/159124258/8e999373-4edf-4d6e-a373-dc0d654b6b14)
+![image](https://github.com/OvlayevaMohidil/Shifoxona/assets/159124258/3487f01b-c10b-4d69-83f0-ed1d257d006b)
+![image](https://github.com/OvlayevaMohidil/Shifoxona/assets/159124258/219e43b5-07fd-43be-808b-abb3d8aed072)
